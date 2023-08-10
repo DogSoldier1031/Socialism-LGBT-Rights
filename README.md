@@ -1,7 +1,5 @@
 Socialism & LGBT Rights
 
-https://www.cvce.eu/content/publication/1999/1/1/33cc8de2-3cff-4102-b524-c1648172a838/publishable_en.pdf
-
 https://www.bostonreview.net/articles/gay-liberation-behind-iron-curtain/
 
 https://www.washingtonpost.com/outlook/2022/03/22/communist-states-have-sometimes-been-havens-lgbtq-rights/
