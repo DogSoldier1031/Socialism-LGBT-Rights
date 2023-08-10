@@ -4,6 +4,8 @@ https://www.bostonreview.net/articles/gay-liberation-behind-iron-curtain/
 
 https://www.washingtonpost.com/outlook/2022/03/22/communist-states-have-sometimes-been-havens-lgbtq-rights/
 
+https://www.popmatters.com/states-gay-liberation-clowes-huneke
+
 “He said he was not prejudiced against gays, but “if anyone is responsible (for the persecution), it’s me.”
 “I’m not going to place the blame on others,” he said.
 Castro, 84, said he was busy in those days fending off threats from the United States, including attempts on his life, and trying to maintain the revolution that put him in power in 1959.
